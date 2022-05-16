@@ -1,0 +1,1 @@
+# golf-clash-hack-deutsch
